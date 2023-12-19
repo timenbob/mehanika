@@ -1,3 +1,2 @@
 # mehanika
-
-bo dodano v zip obliki cca 20:00 dne 19.12.2023
+mam neke tezave piši mi na timen.bobnar@gmail.com da ti pošljem preko driva(pošlji mi tvoj mail).
